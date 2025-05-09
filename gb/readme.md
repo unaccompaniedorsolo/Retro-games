@@ -1,8 +1,8 @@
-# GB EUROPE GAMES
+## GB EUROPE GAMES
 https://files.catbox.moe/8dn6ml.rar
-# GB HACKED GAMES
+## GB HACKED GAMES
 https://files.catbox.moe/ez38e0.rar
-# GB HOMEBREW GAMES
+## GB HOMEBREW GAMES
 https://files.catbox.moe/x07rx6.rar 
-# GB PROTOTYPE GAMES
+## GB PROTOTYPE GAMES
 https://files.catbox.moe/btdrxy.rar

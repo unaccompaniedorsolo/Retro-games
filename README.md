@@ -1,2 +1,2 @@
 # Retro-games BY SOLO
-(gb)[gameboy games]
+(gb) [gameboy games]

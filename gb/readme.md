@@ -1,8 +1,5 @@
-## GB EUROPE GAMES
-https://files.catbox.moe/8dn6ml.rar
-## GB HACKED GAMES
-https://files.catbox.moe/ez38e0.rar
-## GB HOMEBREW GAMES
-https://files.catbox.moe/x07rx6.rar 
-## GB PROTOTYPE GAMES
-https://files.catbox.moe/btdrxy.rar
+## GB GAMES
+[EUROPE!](https://files.catbox.moe/8dn6ml.rar)
+[HACKED!](https://files.catbox.moe/ez38e0.rar)
+[Homebrew](https://files.catbox.moe/x07rx6.rar)
+[PROTOTYPES](https://files.catbox.moe/btdrxy.rar)
